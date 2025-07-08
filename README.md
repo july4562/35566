@@ -19,4 +19,4 @@
 
 P2P下载平台：对于有一定下载经验的用户，Sukebei等种子分享平台提供了免费的日本AV影片下载。虽然这些平台资源丰富，但需要用户确保下载文件的合法性与安全性，避免病毒或非法内容的风险。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/july4562/35566 ）</span>
